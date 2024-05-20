@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently looking for work<br>🌱 Always learning
+🌱 Always learning
 
 
 ## 🌐 Socials:
